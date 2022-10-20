@@ -1,1 +1,0 @@
-Yeldar Kudaibergenov
